@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Adiningtyas Samsoerizal
+- 👋 Hi, I’m @samsoerizal
 - 👀 I’m interested in researching social issue
 - 🌱 I’m currently learning international affairs mainly in social studies 📖
 - 💞 I’m looking to collaborate on any social research project 📚
